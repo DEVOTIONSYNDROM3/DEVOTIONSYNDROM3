@@ -1,16 +1,21 @@
-## Hi there 👋
+![](https://komarev.com/ghpvc/?username=kmshirorui&label=ㅤㅤgive‎ㅤmeㅤtheㅤspyglass.ㅤㅤ&color=bb95ed)
 
-<!--
-**DEVOTIONSYNDROM3/DEVOTIONSYNDROM3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://file.garden/ZxmyEiQL6hzek0ih/fuzzyfuzzycutecute" alt="kmshirorui" width="355" align="right"/>
 
-Here are some ideas to get you started:
+<p align=center>
+<img src="https://file.garden/ZxmyEiQL6hzek0ih/wifiesblehbgb" width="200"/>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+        < . . . ɪᴛ'ꜱ ᴀʟʟ ʏᴏᴜʀꜱ. > 
+
+<p align=center>‎ . ಄ㅤㅤ ${\textsf{\color{#c28adb} fies}}$ ㅤ‎ㅤ ${\textsf{\color{#a8abe3} rui}}$ㅤ‎ㅤ ${\textsf{\color{#db8ace} riel}}$ </p>
+<p align=center> ${\textsf{\color{#d7c8e8} intㅤ ㅤc+hㅤ ㅤenc ㅤ ㅤᶻz﹒}}$ </p>
+<p align=center> <img src="https://file.garden/ZxmyEiQL6hzek0ih/wwhiteborder" width="200"/> </p>
+<p align=center> ㅤ <a href=https://curtainc4ll.atabook.org/>ATABOOK</a> ㅤ <a href=https://lethaldevotion.straw.page/>STRAWPAGE</a> ㅤ <a href=https://listography.com/unstable>LISTOGRAPHY</a>ㅤ  </p>
+<p align=center> !!heavy dni boundary breakers!! </p>
+<p>
+my fav bunny : <a href=https://github.com/byymyownn>@byymyownn</a>
+</p>
+the chunguses : <a href=https://github.com/VilLeynn>@VilLeynn</a> <a href=https://github.com/BackstageAlchemist>@BackstageAlchemist</a> <a href=https://github.com/puppyfes>@puppyfes</a> <a href=https://github.com/WhispyVibez>@WhispyVibez</a> <a href=https://github.com/Emu0312>@Emu0312</a>
+
+<p align=center> <img src="https://file.garden/ZxmyEiQL6hzek0ih/wwhiteborder" width="200"/> </p>
