@@ -2,9 +2,6 @@
 
 <img src="https://file.garden/ZxmyEiQL6hzek0ih/fuzzyfuzzycutecute" alt="kmshirorui" width="355" align="right"/>
 
-<p align=center>
-<img src="https://file.garden/ZxmyEiQL6hzek0ih/wifiesblehbgb" width="200"/>
-</p>
 
         < . . . ɪᴛ'ꜱ ᴀʟʟ ʏᴏᴜʀꜱ. > 
 
