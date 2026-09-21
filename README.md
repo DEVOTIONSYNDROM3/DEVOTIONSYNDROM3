@@ -3,7 +3,7 @@
 <img src="https://file.garden/ZxmyEiQL6hzek0ih/fuzzyfuzzycutecute" alt="kmshirorui" width="355" align="right"/>
 
 
-        < . . . ɪᴛ'ꜱ ᴀʟʟ ʏᴏᴜʀꜱ. > 
+        < . . HOW LONG ARE YOU GOING TO PUT THIS BIT UP ? > 
 
 <p align=center>‎ . ಄ㅤㅤ ${\textsf{\color{#c28adb} fies}}$ ㅤ‎ㅤ ${\textsf{\color{#a8abe3} rui}}$ㅤ‎ㅤ ${\textsf{\color{#db8ace} ronin}}$ </p>
 <p align=center> ${\textsf{\color{#d7c8e8} intㅤ ㅤc+hㅤ ㅤenc ㅤ ㅤᶻz﹒}}$ </p>
