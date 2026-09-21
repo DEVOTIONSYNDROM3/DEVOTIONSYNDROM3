@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=kmshirorui&label=ㅤㅤgive‎ㅤmeㅤtheㅤspyglass.ㅤㅤ&color=bb95ed)
 
-<img src="https://file.garden/ZxmyEiQL6hzek0ih/fuzzyfuzzycutecute" alt="kmshirorui" width="355" align="right"/>
+<img src="https://file.garden/ZxmyEiQL6hzek0ih/wified" alt="kmshirorui" width="355" align="right"/>
 
 
         < . . HOW LONG ARE YOU GOING TO KEEP THIS BIT UP ? > 
